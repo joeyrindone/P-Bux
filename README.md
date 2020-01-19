@@ -1,4 +1,4 @@
-![image](https://imgur.com/a/sqRNI8D)
+![image](https://imgur.com/TYzbznn)
 
 #### Paddy's Bux (P-Bux) is the worlds first self sustaining cryptocurrency. Limited supply, unlimited potential.
 
